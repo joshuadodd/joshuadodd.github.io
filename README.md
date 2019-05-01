@@ -1,2 +1,3 @@
 # joshuaAdodd.com
+
 Professional Profile
